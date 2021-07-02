@@ -1,1 +1,0 @@
-# stewartgds.github.io
